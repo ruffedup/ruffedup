@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/wu2cqq.png" width="365" align="left" alt="malt liquor on your lips">
+<img src="https://files.catbox.moe/ioqbfg.png" width="365" align="left" alt="malt liquor on your lips">
 
 <br>
 <br>
@@ -6,7 +6,7 @@
     <tr>
       <td>
         <br>
-       　　  　⏾　　writhing under your riding hood 　　 <br>
+       　　  　　⏾　　　 writhing under your riding hood 　　　 <br>
          <br>
       </td>
     </tr>
