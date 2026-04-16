@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/vhp1ml.png" width="230" align="left" alt="nyan!">
+<img src="https://files.catbox.moe/wu2cqq.png" width="365" align="left" alt="malt liquor on your lips">
 
 <br>
 <br>
@@ -6,10 +6,14 @@
     <tr>
       <td>
         <br>
-       　　　𓏵　　 $${\color{#515895}kiki's　alt}$$  　🌙　　 $${\color{#6391AE}ᶻ𝗓𐰁}$$  　 $${\color{#515895}fllw　main!}$$ 　 𝄢<br>
+       　　  　⏾　　writhing under your riding hood 　　 <br>
          <br>
       </td>
     </tr>
-  </table>
+  </table
 
-<img src="https://files.catbox.moe/a3l9s1.png" width="410" />
+kiki , shehyr 　　 @itsnotpuppylove 's alt account
+
+always interact with caution/care 　　 𐂯 　　 td/tt
+
+<img src="https://files.catbox.moe/ces71x.png" width="385" alt="malt liquor on your lips">
