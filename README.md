@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/ioqbfg.png" width="365" align="left" alt="malt liquor on your lips">
+<img src="https://files.catbox.moe/ioqbfg.png" width="355" align="left" alt="malt liquor on your lips">
 
 <br>
 <br>
